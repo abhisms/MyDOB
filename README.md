@@ -1,1 +1,1 @@
-Your DOB in accurate manner
+Your DOB in an accurate manner
